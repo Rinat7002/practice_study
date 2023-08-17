@@ -1,1 +1,1 @@
-# My easy projects my for practice, study
+# My easy projects for practice, study
